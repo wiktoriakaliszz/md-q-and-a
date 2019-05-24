@@ -23,3 +23,4 @@ Gotta *make* you understand!
 We've *known* each other for so long
 Your *heart's* been aching but you're too shy to say it
 
+**never** *gonna* tell the truth so i don't really care
